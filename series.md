@@ -4,4 +4,3 @@ Lista de Series Favoritas
 - Game Of Thrones
 - The Vampire Diares
 - Good Morning Call
-- Sabrina 
